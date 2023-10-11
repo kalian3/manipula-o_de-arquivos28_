@@ -1,0 +1,1 @@
+# manipula-o_de-arquivos28_
